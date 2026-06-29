@@ -41,7 +41,7 @@ brainybee/
 - ✅ AEO: FAQ structured data, keyword repetition
 
 ## Contact
-- Phone: +91 8056804567
+- Phone: +91 6382619996
 - Email: onlinebrainybee@gmail.com
 - Website: www.brainybee.online
 
